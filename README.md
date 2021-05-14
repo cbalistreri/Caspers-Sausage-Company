@@ -85,3 +85,7 @@ However, before any of these steps can occur effectively, a functional website m
 5. [@mkeirishfest](https://twitter.com/mkeirishfest) 
 
 - Another large festival that The Venice Club participates in with the same Italian sausage products
+
+#### Conclusion
+
+Building up the brand’s social media presence will be the key to the success of Casper’s Sausage Company’s online initiatives. Again, none of that can happen until the company has a functioning website where customers can learn more about the company, its background and products, as well as browse the different products and actually place orders. Once that has been developed as a channel of revenue for the company, social media accounts should be built up in order to drive traffic to the website and encourage customers to place orders online, something that does not currently occur. Facebook and Twitter should be core social media platforms to focus on in order to build a more robust digital presence. While Facebook can be optimized to appeal to current customers or friends/family etc. who may already be familiar with the brand, Twitter can be a good channel to reach different demographics. Overall, creating and growing a social media presence will help the company not only connect with existing customers, but also expand their reach. 
