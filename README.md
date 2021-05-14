@@ -2,15 +2,15 @@
 ## By: Camille Balistreri
 ### May, 2021
 
-Background
+#### Background
 
-In 2008, my grandparents, Casper (Cappy) and Sara Balistreri began their own company making homemade Italian sausage in their hometown of Milwaukee, Wisconsin. This initiative followed the selling of the Venice Club, an authentic Italian restaurant that was their life’s work. They owned and operated the restaurant for nearly 30 years after taking it over from Cappy’s mother, my great-grandmother. The sausage company has brought success to my extended family in the past decade. Over the years my grandparents have become staples of their Italian-American community in the Milwaukee area and have dozens of lifelong customers that followed them from the restaurant business to the sausage company. They sell their different varieties of sausage primarily at a local farmers market, as well as wholesale to restaurants.
+In 2008, my grandparents, Casper (Cappy) and Sara Balistreri began their own company making homemade Italian sausage in their hometown of Milwaukee, Wisconsin. This initiative followed the selling of the Venice Club, an authentic Italian restaurant that was their life’s work. They owned and operated the restaurant for nearly 30 years after taking it over from Cappy’s mother, my great-grandmother. The sausage company has brought success to my extended family in the past decade. Over the years my grandparents have become staples of their Italian-American community in the Milwaukee area and have dozens of lifelong customers that followed them from the restaurant business to the sausage company. They sell their different varieties of sausage primarily at a local farmers market, as well as wholesale to restaurants. For more background on the Balistreri's and the sausage company, see [here](https://www.jsonline.com/story/life/food/fork-spoon-life/2020/08/13/balistreris-venice-club-italian-sausage-post-restaurant-business/3342535001/) 
 
-Current Online Presence
+#### Current Online Presence
 
 Both Cappy and Sara are in their late 70’s and therefore know little to nothing about social media and digital advertising. Their main marketing strategy simply involves word of mouth. In fact, Casper’s Sausage Company doesn’t even have their own website. Cappy created a Twitter account roughly nine years ago in attempts to promote the newly created sausage company, however quickly abandoned it after only a few Tweet attempts. The current Twitter account can be found [here](https://twitter.com/Aspano_Sausage) 
 
-Plan Overview
+#### Plan Overview
 
 For this social media and online promotion strategic plan, I will focus on maximizing the Twitter account that already exists, as well as crafting ideas for Facebook promotions, considering this is where their largest customer base resides online. Most of their existing target audiences are friends and customers they have had for decades who are in similar demographic groups to them. Therefore, these individuals have similar social media tendencies mentioned above. The platform these groups use most frequently is Facebook, so in an effort to effectively reach the audience they already have and keep them interested in business initiatives, the company should put effort towards creating longer promotional posts fit for Facebook’s layout.   
 
@@ -18,7 +18,7 @@ After the current customer base has been reached effectively, Casper’s Sausage
 
 However, before any of these steps can occur effectively, a functional website must be created where customers can place online orders of sausage either in individual quantities or in bulk for restaurants or other vendors. It will be important to create content that can appeal to every type of potential customer. This includes not only individuals looking to buy for their own personal consumption, but also Italian restaurants looking to source their food locally and support small businesses in the area.
 
-PART I: Relevant Hashtags
+### PART I: Relevant Hashtags
 
 #ItalianSausage
 
@@ -36,7 +36,7 @@ PART I: Relevant Hashtags
 
 #SupportSmallBusinesses
 
-PART II: Facebook Posts
+### PART II: Facebook Posts
 
 Casper Balistreri has been making original varieties of homemade Italian sausage for years. Their unique varieties have been used in restaurants for decades. Now you can try it for yourself! Just visit www.caspersausage.com to place an order.
 
@@ -47,3 +47,19 @@ Casper’s Sausage Company prides itself on its authentic blends of Italian saus
 Looking for authentic Italian sausage in the Milwaukee area? Look no further than Casper’s Sausage Company! Choose from seven varieties of sausage and easily place an online order at www.caspersausage.com. 
 
 Is your Milwaukee restaurant looking for locally sourced Italian food? Casper’s Sausage Company provides dozens of local restaurants with original homemade Italian sausage at reasonable prices. Visit www.caspersausage.com to buy in bulk today.  
+
+### PART III: Tweets
+
+Looking for authentic Italian sausage? Try out Casper’s Sausage Company today! #ItalianSausage www.caspersausage.com 
+
+If anyone knows Italian food, it’s Cappy and Sara Balistreri. Their homemade varieties of sausage are no joke! #ItalianFood www.caspersausage.com 
+
+After years in the Italian food industry, we know good sausage. Try one of our original homemade varieties today #CaspersSausage www.caspersausage.com 
+
+From ground fennel to hot and spicy, we have the Italian sausage for you! Order online today #ItalianSausage www.caspersausage.com 
+
+Supporting local businesses is more important than ever. Casper’s Sausage Company embodies the values of Milwaukee’s restaurant industry while remaining true to its roots #SupportSmallBusinesses
+
+Whether you’re a restaurant owner looking for locally sourced food, or an average joe looking to spice up your cuisine, we have the sausage for you! Order online today #HomemadeSausage www.caspersausage.com 
+
+
