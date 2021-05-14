@@ -68,3 +68,20 @@ However, before any of these steps can occur effectively, a functional website m
 
 - Shop located in downtown Milwaukee selling all sorts of Italian food products, family owned business, similar background
 - Twitter account is run very well, 1,600+ followers, regular tweets and retweets, often sharing pictures of their food/products
+
+2. [@MilwaukeeSausag](https://twitter.com/MilwaukeeSausag)
+
+- Another Milwaukee based sausage company, more broad industry, has bratworsts, Polish sausage, etc
+- They held competitions in the past and promoted the opening of their in person shop 
+
+3. [@BalistrerisMilw](https://twitter.com/BalistrerisMilw)
+
+- Restaurant located in downtown Milwaukee, shares the same last name and family lineage as the Balistreri’s of Casper’s Sausage Company
+
+4. [@Summerfest](https://twitter.com/Summerfest) 
+
+- The largest festival that The Venice Club participates in, Casper’s Sausage provides all the sausage for the stand’s food products
+
+5. [@mkeirishfest](https://twitter.com/mkeirishfest) 
+
+- Another large festival that The Venice Club participates in with the same Italian sausage products
