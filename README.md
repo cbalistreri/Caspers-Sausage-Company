@@ -38,29 +38,29 @@ However, before any of these steps can occur effectively, a functional website m
 
 ### PART II: Facebook Posts
 
-1. Casper Balistreri has been making original varieties of homemade Italian sausage for years. Their unique varieties have been used in restaurants for decades. Now you can try it for yourself! Just visit www.caspersausage.com to place an order.
+1. Casper Balistreri has been making original varieties of homemade Italian sausage for years. Their unique varieties have been used in restaurants for decades. Now you can try it for yourself! Just visit (www.caspersausage.com) to place an order.
 
-2. Cappy and Sara Balistreri have a proven history of success in the Italian food industry. From their days owning and operating The Venice Club in Brookfield to their most recent initiative, Casper’s Sausage Company, Cappy and Sara are always looking to provide the best authentic Italian food to customers. Now you can easily try their homemade sausage by ordering online! Just visit www.caspersausage.com to choose from seven varieties of delicious sausage. 
+2. Cappy and Sara Balistreri have a proven history of success in the Italian food industry. From their days owning and operating The Venice Club in Brookfield to their most recent initiative, Casper’s Sausage Company, Cappy and Sara are always looking to provide the best authentic Italian food to customers. Now you can easily try their homemade sausage by ordering online! Just visit (www.caspersausage.com) to choose from seven varieties of delicious sausage. 
 
-3. Casper’s Sausage Company prides itself on its authentic blends of Italian sausage. From ground fennel to hot spicy, there are seven varieties of sausage to enjoy. Visit www.caspersausage.com to place an order today.
+3. Casper’s Sausage Company prides itself on its authentic blends of Italian sausage. From ground fennel to hot spicy, there are seven varieties of sausage to enjoy. Visit (www.caspersausage.com) to place an order today.
 
-4. Looking for authentic Italian sausage in the Milwaukee area? Look no further than Casper’s Sausage Company! Choose from seven varieties of sausage and easily place an online order at www.caspersausage.com. 
+4. Looking for authentic Italian sausage in the Milwaukee area? Look no further than Casper’s Sausage Company! Choose from seven varieties of sausage and easily place an online order at (www.caspersausage.com). 
 
-5. Is your Milwaukee restaurant looking for locally sourced Italian food? Casper’s Sausage Company provides dozens of local restaurants with original homemade Italian sausage at reasonable prices. Visit www.caspersausage.com to buy in bulk today.  
+5. Is your Milwaukee restaurant looking for locally sourced Italian food? Casper’s Sausage Company provides dozens of local restaurants with original homemade Italian sausage at reasonable prices. Visit (www.caspersausage.com) to buy in bulk today.  
 
 ### PART III: Tweets
 
-1. Looking for authentic Italian sausage? Try out Casper’s Sausage Company today! #ItalianSausage www.caspersausage.com 
+1. Looking for authentic Italian sausage? Try out Casper’s Sausage Company today! #ItalianSausage (www.caspersausage.com)
 
-2. If anyone knows Italian food, it’s Cappy and Sara Balistreri. Their homemade varieties of sausage are no joke! #ItalianFood www.caspersausage.com 
+2. If anyone knows Italian food, it’s Cappy and Sara Balistreri. Their homemade varieties of sausage are no joke! #ItalianFood (www.caspersausage.com)
 
-3. After years in the Italian food industry, we know good sausage. Try one of our original homemade varieties today #CaspersSausage www.caspersausage.com 
+3. After years in the Italian food industry, we know good sausage. Try one of our original homemade varieties today #CaspersSausage (www.caspersausage.com) 
 
-4. From ground fennel to hot and spicy, we have the Italian sausage for you! Order online today #ItalianSausage www.caspersausage.com 
+4. From ground fennel to hot and spicy, we have the Italian sausage for you! Order online today #ItalianSausage (www.caspersausage.com) 
 
 5. Supporting local businesses is more important than ever. Casper’s Sausage Company embodies the values of Milwaukee’s restaurant industry while remaining true to its roots #SupportSmallBusinesses
 
-6. Whether you’re a restaurant owner looking for locally sourced food, or an average joe looking to spice up your cuisine, we have the sausage for you! Order online today #HomemadeSausage www.caspersausage.com 
+6. Whether you’re a restaurant owner looking for locally sourced food, or an average joe looking to spice up your cuisine, we have the sausage for you! Order online today #HomemadeSausage (www.caspersausage.com)
 
 ### PART IV: Twitter Competitors/Accounts to Follow
 
