@@ -18,4 +18,32 @@ After the current customer base has been reached effectively, Casper’s Sausage
 
 However, before any of these steps can occur effectively, a functional website must be created where customers can place online orders of sausage either in individual quantities or in bulk for restaurants or other vendors. It will be important to create content that can appeal to every type of potential customer. This includes not only individuals looking to buy for their own personal consumption, but also Italian restaurants looking to source their food locally and support small businesses in the area.
 
+PART I: Relevant Hashtags
 
+#ItalianSausage
+
+#ItalianFood
+
+#HomemadeSausage
+
+#Sausage
+
+#CaspersSausage
+
+#BuyLocal AND #EatLocal
+
+#SmallBusinessesWI
+
+#SupportSmallBusinesses
+
+PART II: Facebook Posts
+
+Casper Balistreri has been making original varieties of homemade Italian sausage for years. Their unique varieties have been used in restaurants for decades. Now you can try it for yourself! Just visit www.caspersausage.com to place an order.
+
+Cappy and Sara Balistreri have a proven history of success in the Italian food industry. From their days owning and operating The Venice Club in Brookfield to their most recent initiative, Casper’s Sausage Company, Cappy and Sara are always looking to provide the best authentic Italian food to customers. Now you can easily try their homemade sausage by ordering online! Just visit www.caspersausage.com to choose from seven varieties of delicious sausage. 
+
+Casper’s Sausage Company prides itself on its authentic blends of Italian sausage. From ground fennel to hot spicy, there are seven varieties of sausage to enjoy. Visit www.caspersausage.com to place an order today.
+
+Looking for authentic Italian sausage in the Milwaukee area? Look no further than Casper’s Sausage Company! Choose from seven varieties of sausage and easily place an online order at www.caspersausage.com. 
+
+Is your Milwaukee restaurant looking for locally sourced Italian food? Casper’s Sausage Company provides dozens of local restaurants with original homemade Italian sausage at reasonable prices. Visit www.caspersausage.com to buy in bulk today.  
